@@ -1,4 +1,4 @@
-- ✨ you can msg to me in insta @efe6nen ✨ 
+-  contact instagram: @efe6nen | mail: efe@email.com ✨ 
 
 <!---
 efe6nen/efe6nen is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
